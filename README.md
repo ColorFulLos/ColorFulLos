@@ -1,5 +1,5 @@
 ### Hi there 👋
-##### 👨‍💻 Seeking for SDE 2022 Fall Intern and 2023 SDE NG now.
+##### 👨‍💻 Seeking for 2023 SDE NG and incoming Amazon Internship Fall 2022.
 ##### 🙈 If you wanna reach me, just follow the socials below!
 
 
